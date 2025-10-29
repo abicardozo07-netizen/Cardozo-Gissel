@@ -1,2 +1,0 @@
-# Cardozo-Gissel
-personal
